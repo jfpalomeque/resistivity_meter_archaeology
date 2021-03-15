@@ -3,3 +3,4 @@ Two years ago, in a second hand book shop, I found a quite old copy of the book 
 From all of them, I found the resitivity survey the easiest method that could be madeusing cheap tools and materials.
 ---
 
+
